@@ -41,12 +41,12 @@
 * **仉桂美**
 * **王美玉**
 
-## 法規與報告文件(pdf)
+## 相關連結及整理
 
-* [自經區草案法規與總說明](http://www.fepz.org.tw/dn.aspx?uid=34042)
-* [修正動議（執政黨）](https://drive.google.com/file/d/0B6ZiS9f8Cm9qbzJwWmVJNW9pRDQ/edit?usp=sharing)
-* [修正動議（在野黨）](https://drive.google.com/file/d/0B6ZiS9f8Cm9qWkQtMTFJR2dFejA/edit?usp=sharing)
-* [自經區法規影響評估報告(520)](http://www.fepz.org.tw/dn.aspx?uid=35707)
+* [監察委員提名人履歷表](https://docs.google.com/spreadsheets/d/10enfOyGzQor0gV-g80ug4OG8CBPbGb_X7pFhyBLjMNA/pubhtml)
+* [g0v監察委員履歷表](https://g0v.hackpad.com/dgJLdNuzr43)
+* [Fw: [心得] 自己的監委自己搜](https://www.ptt.cc/bbs/Gossiping/M.1399564962.A.691.html)
+* [Re: [新聞] 第五屆監委提名名單出爐](https://www.ptt.cc/bbs/Gossiping/M.1399556382.A.EB9.html)
 
 ---
 
